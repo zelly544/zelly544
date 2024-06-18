@@ -8,3 +8,7 @@ meu nome e barry adan
 - ultilizo esse espaco para organizacao e compartilhamento dos meu projetos feito
 - ### me adiciona
 - @zellyxz01
+
+
+
+![](https://media1.tenor.com/m/z6w8CTZkniAAAAAC/galo-cego.gif)
